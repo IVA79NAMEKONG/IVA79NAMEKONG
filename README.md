@@ -1,3 +1,3 @@
 # je suis Namekong Meumtane Ivanelle 
 
-## Analyste 
+### data analyste/ élève ingénieur en ingénierie des humanités numériques
